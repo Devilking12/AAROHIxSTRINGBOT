@@ -4,7 +4,7 @@
 <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
 <h3 align="center">
-    ──「 ᴀᴀʀᴏʜɪ ✘ sᴛʀɪɴɢʙᴏᴛ 」──
+    ──「 𓆩𝐀αⱤ𝐨ԋ𝐢 𝐒𝐭ɾ𝐢ɳ𝗴͟ 𝐒єєʂι𝐨ɳ⛦⃕͜🇮🇳 」──
 </h3>
 
 <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
